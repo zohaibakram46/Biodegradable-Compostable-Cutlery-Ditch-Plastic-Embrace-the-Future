@@ -2,7 +2,7 @@
 
 Plastic forks, spoons, and knives may seem harmless — until you realize billions of them are used once and then dumped into landfills or oceans. The solution? Biodegradable compostable cutlery made from natural, plant-based materials that serve your food without serving harm to the planet.
 
-Whether you're running a café, a catering business, or an event, switching to [eco-friendly cutlery]([url](https://www.bioleaderpack.com/product-category/biodegradable-cutlery/)) shows your commitment to sustainability — without compromising quality or style.
+Whether you're running a café, a catering business, or an event, switching to **[eco-friendly cutlery]([url](https://www.bioleaderpack.com/product-category/biodegradable-cutlery/))** shows your commitment to sustainability — without compromising quality or style.
 
 **🍃 What is Compostable Cutlery Made Of?**
 
